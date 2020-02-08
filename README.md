@@ -5,4 +5,3 @@ Junior Essono
 farid yomi
 Audrey KAMBOU
 Youta Obby Sidane
-Ngoudjo ivan junior
