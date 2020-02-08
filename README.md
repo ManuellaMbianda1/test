@@ -7,5 +7,5 @@ Audrey KAMBOU
 Youta Obby Sidane
 Chakam
 Brenda MAMCHE
-Manefa Yousouf
-Frank Mbappe
+Loic NGUEGANG
+Mbappe Frank
