@@ -7,4 +7,5 @@ Audrey KAMBOU
 Youta Obby Sidane
 Chakam
 Brenda MAMCHE
+Loic NGUEGANG
 Choudja Djoya Alex Decker
