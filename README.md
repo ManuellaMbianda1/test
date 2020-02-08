@@ -7,4 +7,4 @@ Audrey KAMBOU
 Youta Obby Sidane
 Chakam
 Brenda MAMCHE
-Manefa Yousouf
+Loic NGUEGANG
