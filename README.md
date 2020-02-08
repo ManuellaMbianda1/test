@@ -6,4 +6,3 @@ farid yomi
 Audrey KAMBOU
 Youta Obby Sidane
 Chakam
-Douanla Jordan
